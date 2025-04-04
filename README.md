@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Mwapore254  
+# 👋 Hi, I’m @CEO-AmiTech-LTD
 ### 🚀 Data Enthusiast | AI/ML Developer | Tech Community Member  
 
 - 👀 I’m interested in AI, Machine Learning, and Data Science.  
